@@ -100,7 +100,7 @@ We warmly welcome contributions from the community! If you're interested in impr
 
 ## 📧 Contact
 
-For any inquiries, support, or partnership opportunities, please don't hesitate to reach out to us at kowsikperumalla@gmail.com.
+For any inquiries, support, or partnership opportunities, please don't hesitate to reach out to us at pathforgeautomations@gmail.com.
 
 ---
 ✨ *Crafted with passion for education groups ready to scale excellence.* ✨
